@@ -1,10 +1,15 @@
 ## Hi,i'm Guruh Adghi Pratma 👋
 
 🖥Information Technology student at University Tadulako
+
 💻Cybersecurity enthusiasts
+
 📱 I make video on instagram story and anything about programing:https://www.instagram.com/guruhadghi__/
+
 </>I create anything with programing languange like:
+
 tools, software, website, design, and anything😀
+
 🐍My favorite programing language is python
 
 

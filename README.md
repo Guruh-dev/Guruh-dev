@@ -1,9 +1,14 @@
-## Hi, my name is Guruh Adghi Pratma 👋
+## Hi, my name is Guruh Adghi Pratma 🧑‍💻
 🖥Information Technology 
+
 💻Tech enthusiasts
+
 📱 I make video on instagram story and anything about programing:https://www.instagram.com/guruhadghi__/
+
 </>I create anything with programing languange like:
+
 tools, software, website, design, AI/ML with Deep Learning and more😀
+
 🐍My favorite programing language is python
 
 

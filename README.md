@@ -3,11 +3,11 @@
 
 💻Tech enthusiasts
 
-📱 I make video on instagram anything about programing and cyber https://www.instagram.com/guruhdev/
+📱Here is my instagram anything about Programing and Cyber Security update https://www.instagram.com/guruhdev/
 
 </>I create anything with programing languange like:
 
-tools, software, website, design, AI/ML with Deep Learning and more😀
+tools/software, website, design, AI/ML with Deep Learning and more😀
 
 🐍My favorite programing language is python
 

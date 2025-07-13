@@ -1,16 +1,12 @@
 ## Hi, my name is Guruh Adghi Pratma 
-World Future Technology
+*The World Future Technology & Smarter Innovation*
 
 tools/software, website, design, AI/ML with Deep Learning and Llm.
-
-Professor & Mentor
-🧬🧪🔬🧫🔭🔬Science💻🖥️👾📱🌐Technology
+Professor & Mentor Technology Industries.
+🧬🧪🔬🧫🔭🔬Science
+💻🖥️👾📱🌐Technology
 ⚙️🤖Engineering
 ✖️➖➕♾️➗🟰🧮Math & physics.
-
-
-## 🌐 Socials:
-[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)]([https://instagram.com/guruhadghipratma](https://www.instagram.com/guruhadghipratma?igsh=OHh4dm5ydG9mZmt0&utm_source=qr)) 
 
 
 # 💻 Tech Stack:

@@ -1,7 +1,7 @@
 ## Hi, my name is Guruh Adghi Pratma 
 *The World Future Technology & Smarter Innovation*
 
-tools/software, website, design, AI/ML with Deep Learning and Llm.
+Tools/software, website, design, AI/ML with Deep Learning and Llm.
 Professor & Mentor Technology Industries.
 🧬🧪🔬🧫🔭🔬Science
 💻🖥️👾📱🌐Technology
